@@ -1,2 +1,0 @@
-# Inxee
-Electronics Company
